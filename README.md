@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Pavel (@pavel9213)
+# 👋 Hi, I'm yurez
 
 🌐 **Web3 Enthusiast | Crypto Researcher | Builder**
 
